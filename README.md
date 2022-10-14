@@ -1,4 +1,4 @@
-# Hi, I'm learning this coding thing! (╥﹏╥)
+# Hi, I'm learning this coding thing! (͠◉_◉᷅ )
 
 ░░░░░░░░░░░░░░░░░░░░░░░░░░░░░\
 ░░░░░░░░░░░░░▄▄▄▄▄▄▄░░░░░░░░░\
